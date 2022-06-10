@@ -5,7 +5,7 @@
 - 📫 How to reach me => 💌 DM me on instagram @edricgalentino / email me on erdrikpertama@gmail.com / you can chat me on LinkedIn (Edric Galentino) 
 
 a
-
+a
 
 
 <!---
