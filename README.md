@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on amazing projects in the future and be part of an incredible team!
 - 📫 How to reach me => 💌 DM me on instagram @edricgalentino / email me on erdrikpertama@gmail.com / you can chat me on LinkedIn (Edric Galentino) 
 
-
+dwadwa
 
 <!---
 edricgalentino/edricgalentino is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
