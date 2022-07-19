@@ -5,7 +5,6 @@
 - 📫 How to reach me => 💌 DM me on instagram @edricgalentino / email me on erdrikpertama@gmail.com / you can chat me on LinkedIn (Edric Galentino) 
 
 
-
 <!---
 edricgalentino/edricgalentino is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link below to take a look at your changes.
